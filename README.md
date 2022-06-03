@@ -1,1 +1,1 @@
-# SI_2022_lab2_196069
+Boris Dimitrov 196069
